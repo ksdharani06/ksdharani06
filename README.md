@@ -1,6 +1,6 @@
 #  Hi! 		This is Dharani :ghost:
 
- ##### :butterfly:  Welcome to my github profile .I'm a colledge student.Currently pursing my studies in Computer Science and Engineering:v:
+ ##### :butterfly:  Welcome to my github profile .I'm a college student.Currently pursing my studies in Computer Science and Engineering:v:
  
 # About Me
   :nerd_face:  Special about me is  purshing the limits of every oppportunity and smart working guy!.
