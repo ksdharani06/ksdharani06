@@ -11,5 +11,5 @@
   
    :rocket: To reach me : shanthidharani978@gmail.com
 
-   :iphone: Connect with me www.linkedin.com/in/dharani-k-s-513b66237
+   :iphone: Connect with me https://www.linkedin.com/in/dharani-k-s-513b66237
 
